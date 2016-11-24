@@ -1,2 +1,1 @@
-# Hello-World
-learning GitHub step 1
+Me rikeeee to learn code!...GitHub is brain food ^^
